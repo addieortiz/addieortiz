@@ -1,12 +1,11 @@
-👋 Haloooo there, I'm @addieortiz
+👋 Haloooo there, I'm Addie. Nice to meet you!
 
 😊 My Pronouns are: She/Her 👩🏻
 
-🙋🏻‍♀️ I'm a newbie. I'm open to collaboration, mentoring, learning and enhancing my skillset.
+🙋🏻‍♀️ I'm a newbie. I'm open to collaboration and mentoring. I'm always up for learning, and enhancing my skill set.
 
-🔭 I’m currently working on career transitioning, up skilling, and learning more about technology and full-stack development.
 
-🌱 I’m currently learning the basics of full-stack development. Please cheer me on and help me when we cross paths here. 🫶🏼
+
 
 ⚡ Fun fact: I'm an ♈︎ 🌞 ♊︎ 📈 ♑︎ 🌔
 
