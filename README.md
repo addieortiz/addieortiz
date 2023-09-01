@@ -2,12 +2,11 @@
 
 😊 My Pronouns are: She/Her 👩🏻
 
-🙋🏻‍♀️ I'm a newbie. I'm open to collaboration and mentoring. I'm always up for learning, and enhancing my skill set.
+🙋🏻‍♀️ I'm a newbie. I'm open to collaboration and mentoring. 
 
 
 
 
-⚡ Fun fact: I'm an ♈︎ 🌞 ♊︎ 📈 ♑︎ 🌔
 
 
 <!---
